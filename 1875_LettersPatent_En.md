@@ -1,0 +1,24 @@
+# Hong Kong Letters Patent 1875
+Hong Kong Letters Patent (1875)<br>
+Government of the United Kingdom
+> Supplementary Charter of the Colony of Hong Kong (Hong Kong Letters Patent 1843); issued by Queen Vcitoria of the United Kingdom of Great Britain and Ireland on 8th June 1875, the Hong Kong Letters Patent 1875 supplemented the Charter of the Colony of Hong Kong. The Charter, this supplementary charter, and the Hong Kong Letters Patent 1877 were revoked and replaced by the Letters Patent of 19 January 1888.
+
+---
+
+Victoria by the Grace of God of the United Kingdom of Great Britain and Ireland Queen Defender of the Faith: To all to whom these presents shall come, Greeting:
+
+Whereas by certain Letters Patent under the great seal of our United Kingdom of Great Britain and Ireland bearing date at Westminster the fifth day of April 1843 in the sixth year of our Reign we did erect our Island of Hongkong and its dependencies (as therein described and set forth) into a separate Colony to be known and designated as the Colony of Hongkong and did further provide for the government thereof as upon relation being had to our said Letters Patent will more fully and at large appear And whereas by our Order in our Privy Council bearing date the 4th day February 1861 in the twenty fourth year of our Reign it was ordered that the Kowloon district therein described should be part and parcel of our said Colony And whereas by our said Letters Patent we did reserve to ourselves full power and authority from time to time to revoke alter or amend the same Now know ye that we do hereby revoke Article XI of our said Letters Patent whereby provision is made for the administration of the government of our said Colony in the event of the death or absence of the Governor for the time being thereof and we do hereby declare our will and pleasure to be that in the event of the death incapacity or absence out of our said Colony of such person as may be commissioned and appointed by us to be the Governor thereof all and every the powers and authorities by our said Letters Patent or by these presents granted to the Governor of our said Colony for the time being shall be and the same are hereby vested in such person as may be appointed by us by warrant under our sign manual and signet to be the Lieutenant Governor of our said Colony or in the event of there being no person in our said Colony commissioned and appointed by us to be Lieutenant Governor thereof then our pleasure is and we do hereby provide and declare that the said powers and authorities shall be and the same are hereby vested in the Colonial Secretary or person lawfully discharging the functions of Colonial Secretary in our said Colony for the time being and every such Lieutenant Governor or such Colonial Secretary or person lawfully discharging the functions of Colonial Secretary for the time being shall execute all and every the said powers and authorities until our further pleasure shall be signified therein and according to such instructions as our said Governor may have received and such further instructions as such Lieutenant Governor Colonial Secretary or other person as aforesaid may receive from us either under our sign manual and signet or by instructions under the hand of one of our Principal Secretaries of State.
+
+II. And whereas by our said recited Letters Patent we have amongst other things given and granted unto our said Governor full power and authority as he should see occasion in our name and on our behalf to grant certain pardons to offenders in the manner and on the terms therein mentioned And whereas it is expedient to give our said Governor additional powers of granting pardons Now we do hereby authorize and empower our said Governor as he shall see occasion in our name and on our behalf when any crime has been committed within our said Colony to grant à pardon to any accomplice not being the actual perpetrator of such crime who shall give such information and evidence as shall lead to the apprehension and conviction of the principal offender.
+
+III. And we do hereby require and command all our officers and ministers and military and all other the inhabitants of our said Colony of Hongkong to be obedient and assisting to such person as may in the event of the death incapacity or absence of the Governor of our said Colony of Hongkong assume and under the provisions of these our Letters Patent the functions of such Governor.
+
+IV. And we do hereby reserve to us our heirs and successors full power and from time to time to revoke alter or amend these our Letters Patent as us or them shall seem meet.
+
+In witness whereof we have caused these our Letters to be made Patent.
+
+Witness ourself at Westminster the Eighth day of June in the Thirty-eighth of our Reign.
+
+By Warrant under the Queen's Sign Manual
+
+C ROMILLY
